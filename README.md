@@ -33,4 +33,4 @@ Jika Anda memiliki saran untuk meningkatkan portofolio ini atau menemukan masala
 
 ---
 
-© 2024 My Portfolio. Dibuat dengan ❤️ oleh Rahmad Era Sugiarto.
+© 2024 My Portfolio.
